@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Maksijo
+- 👀 I’m interested in gambling and cryptocurrency
+- 📫 How to reach me: @outamount - telegram
